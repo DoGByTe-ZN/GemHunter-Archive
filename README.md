@@ -1,6 +1,6 @@
 # GemHunter-Archives
 
-This is the official #GemHunter Archives GitHub Repo, providing you with the #GemHunter Post Articles all in one centralized location
+This is the official #GemHunter Archives GitHub Repo, providing you with all of the #GemHunter Post Article in one centralized location
 
 [Year: 2018]
 
