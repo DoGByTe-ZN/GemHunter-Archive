@@ -1,5 +1,7 @@
 # GemHunter-Archive
 
+[![Twitter Follow](https://img.shields.io/twitter/follow/DoGByTeZN.svg?style=social&label=Follow%20%40DoGByTeZN)](https://twitter.com/DoGByTeZN)
+
 This is the official #GemHunter Archive, providing you with all of the #GemHunter Post Articles in one centralized location
 
 [Year: 2018]
