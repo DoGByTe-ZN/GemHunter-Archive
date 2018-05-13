@@ -6,6 +6,8 @@ This is the official #GemHunter Archive, providing you with all of the #GemHunte
 
 [Year: 2018]
 
+[7th - 11th May 2018](https://www.linkedin.com/pulse/gemhunter-week-7th-11th-may-2018-chelin-sampson/?published=t)
+
 [30th April - 4th May 2018](https://www.linkedin.com/pulse/gemhunter-week-30th-april-4th-may-2018-chelin-sampson/?published=t)
 
 [23rd April - 27th April 2018](https://www.linkedin.com/pulse/gemhunter-week-23rd-27th-april-2018-chelin-sampson/?published=t)
