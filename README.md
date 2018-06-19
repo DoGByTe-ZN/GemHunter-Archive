@@ -6,6 +6,8 @@ This is the official #GemHunter Archive, providing you with all of the #GemHunte
 
 [Year: 2018]
 
+[11th - 15th June 2018](https://www.linkedin.com/pulse/gemhunter-week-11th-15th-june-2018-chelin-sampson/)
+
 [4th - 8th June 2018] Error 404: #Gems Not Found
 
 [28th May - 1st June 2018](https://www.linkedin.com/pulse/gemhunter-week-28th-may-1st-june-2018-chelin-sampson/?published=t)
