@@ -6,6 +6,8 @@ This is the official #GemHunter Archive, providing you with all of the #GemHunte
 
 [Year: 2018]
 
+[September 2018](https://www.linkedin.com/pulse/gemhunter-month-september-2018-chelin-sampson/?published=t)
+
 [August 2018](https://www.linkedin.com/pulse/gemhunter-month-august-2018-chelin-sampson/?published=t)
 
 [July 2018](https://www.linkedin.com/pulse/gemhunter-month-july-2018-chelin-sampson/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_post_details%3Bv33sJzxVSxG7UjJ7r1kFng%3D%3D)
