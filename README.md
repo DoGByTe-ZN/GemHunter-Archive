@@ -6,6 +6,8 @@ This is the official #GemHunter Archive, providing you with all of the #GemHunte
 
 [Year: 2018]
 
+[November 2018](https://www.linkedin.com/pulse/gemhunter-month-november-2018-chelin-sampson/?published=t)
+
 [October 2018] Much needed Annual Leave
 
 [September 2018](https://www.linkedin.com/pulse/gemhunter-month-september-2018-chelin-sampson/?published=t)
