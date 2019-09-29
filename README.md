@@ -4,6 +4,8 @@
 
 This is the official #GemHunter Archive, providing you with all of the #GemHunter Post Articles in one centralized location
 
+[September 2019](https://www.linkedin.com/pulse/gemhunter-month-september-2019-chelin-sampson/?published=t)
+
 [August 2019](https://www.linkedin.com/pulse/gemhunter-month-august-2019-chelin-sampson/?published=t)
 
 [July 2019](https://www.linkedin.com/pulse/gemhunter-month-july-2019-chelin-sampson/?published=t)
