@@ -4,6 +4,8 @@
 
 This is the official #GemHunter Archive, providing you with all of the #GemHunter Post Articles in one centralized location
 
+[August 2020](https://www.linkedin.com/pulse/gemhunter-month-august-2020-chelin-sampson/?published=t)
+
 [July 2020](https://www.linkedin.com/pulse/gemhunter-month-july-2020-chelin-sampson/?published=t)
 
 [June 2020] Error 404: Not Enough #Gems Found
