@@ -4,6 +4,8 @@
 
 This is the official #GemHunter Archive, providing you with all of the #GemHunter Post Articles in one centralized location
 
+**Not as active in Social Media circles now days... hence not enough #Gems found for a months submission**
+
 [November 2020](https://www.linkedin.com/pulse/gemhunter-month-november-2020-chelin-sampson/?published=t)
 
 [October 2020](https://www.linkedin.com/pulse/gemhunter-month-october-2020-chelin-sampson/?published=t)
